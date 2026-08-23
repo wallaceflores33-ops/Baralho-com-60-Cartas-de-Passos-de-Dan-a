@@ -1,0 +1,1 @@
+# Baralho-com-60-Cartas-de-Passos-de-Dan-a
